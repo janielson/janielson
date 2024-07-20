@@ -1,3 +1,3 @@
- ### ÓLA MUNDO DEVS !!! 👋**💥💥**
+ ### ÓLA DEV ! 👋
 
 
